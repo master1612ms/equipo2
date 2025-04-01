@@ -1,1 +1,1 @@
-# pesentaciones_equipo2
+# pesentaciones-equipo
